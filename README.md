@@ -1,6 +1,4 @@
-# Nordic Energy 
-#
-Initial Coin Offering 
-#
-https://wwww.nordicenergy.io
-#
+# Nordic Energy - The Next Energy generation
+
+#### Initial Coin Offering 
+
